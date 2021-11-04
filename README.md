@@ -8,7 +8,7 @@
 [Book author on Amazon](https://www.amazon.com/author/javiergutierrezchamorro/?tag=gutibitacor0c-21)  
 [Bing Places](https://www.bing.com/local/Details.aspx?lid=YN6306x4763584402258748051)  
 [Facebook](https://www.facebook.com/bitacoraguti)  
-[Github](https://github.com/javiergutierrezchamorro)  Q``
+[Github](https://github.com/javiergutierrezchamorro)  
 [Google Places](https://g.page/bitacorajaviergutierrezchamorro)  
 [Instagram](https://www.instagram.com/guardatiempo)  
 [LinkedIn](https://www.linkedin.com/company/bitacora-guti)  
